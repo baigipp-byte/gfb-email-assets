@@ -1,0 +1,1 @@
+# gfb-email-assets
